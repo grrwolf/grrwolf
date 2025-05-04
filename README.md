@@ -41,9 +41,9 @@ mini stamp collection!!
 
 
 ﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌
+pokemons!!
 
-
-![image](https://media2.giphy.com/media/v1.Y2lkPTc5MGI3NjExNnU0ZmY0cmloMTU2YWtrcXl2OWlxczQxaXRlOGdiejJlbDFpMTdxZSZlcD12MV9pbnRlcm5hbF9naWZfYnlfaWQmY3Q9Zw/bXguSfnEakGFG/giphy.gif)
+![image](https://media0.giphy.com/media/v1.Y2lkPTc5MGI3NjExc2FrMWxwemR0OHNibHlpZGd2bWh5YXZvc3d4M3NjMGdrMWxmMm13YSZlcD12MV9zdGlja2Vyc19zZWFyY2gmY3Q9cw/9d5BPJ7tsO3c0g7phK/giphy.webp)
 
 
 
