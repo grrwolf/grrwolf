@@ -43,7 +43,7 @@ mini stamp collection!!
 ﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌
 
 
-![image](https://github.com/user-attachments/assets/72114212-1b8d-42f4-8322-e32605b8a8b0)
+![image](https://media2.giphy.com/media/v1.Y2lkPTc5MGI3NjExNnU0ZmY0cmloMTU2YWtrcXl2OWlxczQxaXRlOGdiejJlbDFpMTdxZSZlcD12MV9pbnRlcm5hbF9naWZfYnlfaWQmY3Q9Zw/bXguSfnEakGFG/giphy.gif)
 
 
 
