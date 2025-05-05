@@ -2,7 +2,7 @@
 
 
 mostly offtab so i most likely wont see your messages so just whisper >.< C+H welcomed!!![image](https://pixels.crd.co/assets/images/gallery16/c5de9d4e.gif?v=99d3974e)
-
+![image](https://blinkies.cafe/b/display/0072-lesbian.gif)![image](https://blinkies.cafe/b/display/0089-kiss.gif)
 
 
 
