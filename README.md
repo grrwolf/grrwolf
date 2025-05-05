@@ -1,4 +1,6 @@
-(https://grrwolf.straw.page) my interests ![image](https://supplies.ju.mp/assets/images/tiny1/222cdbb1_original.gif?v=1c1ba870)
+![image](https://media3.giphy.com/media/v1.Y2lkPTc5MGI3NjExNm9jZzliZTF5aDRid2ZuaTZhcGM2d3dlcWw0ZHpjZDNjanVxdjBtcCZlcD12MV9pbnRlcm5hbF9naWZfYnlfaWQmY3Q9cw/syJQ2JvKf98lQm3cOm/giphy.gif)(https://grrwolf.straw.page) 
+
+my interests ![image](https://supplies.ju.mp/assets/images/tiny1/222cdbb1_original.gif?v=1c1ba870)
 
 (https://kirikosbloom.straw.page) about me ![image](https://supplies.ju.mp/assets/images/tiny1/7405bc54_original.gif?v=1c1ba870)
 
