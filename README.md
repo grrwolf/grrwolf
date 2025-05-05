@@ -2,7 +2,7 @@
 
   
   
-  mostly offtab so most likely wont see your messages so just whisper C+H!!                                          ![image](https://media1.giphy.com/media/v1.Y2lkPTc5MGI3NjExMno4d3V6Y2MwbDV0NTIzY2p0eWdwYzJva2R4dmpnMnlydWtnbHozcCZlcD12MV9zdGlja2Vyc19zZWFyY2gmY3Q9cw/06JhXizHrhUqDrsjS2/giphy.webp)
+  mostly offtab so most likely wont see your messages so just whisper C+H!!                                          
 ![image](https://pixels.crd.co/assets/images/gallery16/c5de9d4e.gif?v=99d3974e)
 
 
