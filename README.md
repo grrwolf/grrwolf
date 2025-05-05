@@ -11,7 +11,7 @@
 
 
 
-jackieshauna![image](https://pixels.crd.co/assets/images/gallery109/0dafc9b5.gif?v=99d3974e)
+cred to artist:crococolol on x![image](https://pixels.crd.co/assets/images/gallery100/d15fb416.gif?v=99d3974e)
 ![image](https://pbs.twimg.com/media/GgsTRwnW0AAWtVA?format=jpg&name=4096x4096)
 
 
