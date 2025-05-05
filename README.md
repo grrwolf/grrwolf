@@ -11,7 +11,7 @@
 
 
 
-cred to artist:hungrycowgirl on x![image](https://pixels.crd.co/assets/images/gallery75/cf3cb8b0.gif?v=99d3974e)![image](https://pbs.twimg.com/media/GfbIJc-aQAAEfyT?format=jpg&name=small)
+cred to artist:hungrycowgirl on x![image](https://pbs.twimg.com/media/EpNZcCTVQAAF3x_?format=jpg&name=small)
 
 
 
