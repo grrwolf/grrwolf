@@ -1,4 +1,4 @@
-![image](https://media3.giphy.com/media/v1.Y2lkPTc5MGI3NjExNnF4Yzg5MG1rMnN2bHo0dzYzZ3ZsazI3OHg3NHFlcmRpODAyemF4MSZlcD12MV9pbnRlcm5hbF9naWZfYnlfaWQmY3Q9cw/fYkYhw2ANU1I4/giphy.gif)
+![image](https://media0.giphy.com/media/xgA5MCpcfNnhMEcAQz/giphy.webp?cid=ecf05e473g5fvj1z1rbvaz17ldl0k79putihnc01nc5zrupk&ep=v1_stickers_search&rid=giphy.webp&ct=s)
 
 
 (https://grrwolf.straw.page) my interests ![image](https://supplies.ju.mp/assets/images/tiny1/222cdbb1_original.gif?v=1c1ba870)
