@@ -1,8 +1,4 @@
   ![image](https://pixels.crd.co/assets/images/gallery21/94808142.gif?v=99d3974e) ｎｉｕ ![image](https://pixels.crd.co/assets/images/gallery21/94808142.gif?v=99d3974e)
- 
-  she/her
-  
-  
   mostly offtab so most likely wont see your messages so just whisper C+H welcomed!!![image](https://pixels.crd.co/assets/images/gallery16/c5de9d4e.gif?v=99d3974e)
 
 
