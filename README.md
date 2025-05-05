@@ -1,5 +1,4 @@
-![image](https://64.media.tumblr.com/b63065fa93deb14fba79c05cd1628bbe/84d899395c540314-ed/s250x400/abb7a7691754ffef5d02150e1ac342fca4a619b5.gifv)![image](https://64.media.tumblr.com/253584d859446c9c9f51223f209a1c93/1e577af00f8d0a4f-34/s250x400/b3639236359e0410763e192467ac4b84d723182e.gifv)
-![image](https://pixels.crd.co/assets/images/gallery21/94808142.gif?v=99d3974e) ｎｉｕ ![image](https://pixels.crd.co/assets/images/gallery21/94808142.gif?v=99d3974e)![image](https://64.media.tumblr.com/f9b2125362b298611585c840fa85e1d5/1e577af00f8d0a4f-95/s250x400/2880c44f00de5b9a59ded87b1094dececc2e9a40.gifv)![image](https://64.media.tumblr.com/35fe871bb55e9def953261492a19c9a0/1e577af00f8d0a4f-58/s250x400/9e7f9a855fae941dd2ff097f8874ba52a7b553ab.gifv)
+![image](https://pixels.crd.co/assets/images/gallery21/94808142.gif?v=99d3974e) ｎｉｕ ![image](https://pixels.crd.co/assets/images/gallery21/94808142.gif?v=99d3974e)
 
 
 mostly offtab so i most likely wont see your messages so just whisper >.< C+H welcomed!!![image](https://pixels.crd.co/assets/images/gallery16/c5de9d4e.gif?v=99d3974e)
@@ -19,7 +18,7 @@ mostly offtab so i most likely wont see your messages so just whisper >.< C+H we
 
 
 
-
+![image](https://64.media.tumblr.com/b63065fa93deb14fba79c05cd1628bbe/84d899395c540314-ed/s250x400/abb7a7691754ffef5d02150e1ac342fca4a619b5.gifv)![image](https://64.media.tumblr.com/253584d859446c9c9f51223f209a1c93/1e577af00f8d0a4f-34/s250x400/b3639236359e0410763e192467ac4b84d723182e.gifv)![image](https://64.media.tumblr.com/f9b2125362b298611585c840fa85e1d5/1e577af00f8d0a4f-95/s250x400/2880c44f00de5b9a59ded87b1094dececc2e9a40.gifv)![image](https://64.media.tumblr.com/35fe871bb55e9def953261492a19c9a0/1e577af00f8d0a4f-58/s250x400/9e7f9a855fae941dd2ff097f8874ba52a7b553ab.gifv)
 ﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌
 
 
