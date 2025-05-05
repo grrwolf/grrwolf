@@ -11,7 +11,7 @@
 
 
 
-cred to artist:hungrycowgirl on x![image](https://pbs.twimg.com/media/EpNZcCTVQAAF3x_?format=jpg&name=small)
+cred to artist:BJMAKI on x![image](https://pbs.twimg.com/media/GhU_RtVakAAzvxM?format=png&name=small)
 
 
 
