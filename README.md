@@ -11,7 +11,7 @@
 
 
 
-cred to artist:BJMAKI on x![image](https://preview.redd.it/hn7bbbc2jyt61.jpg?width=1080&crop=smart&auto=webp&s=bb6539991b23029a86a24d057c28489f2f745b5f)
+cred to artist:BJMAKI on x![image](![GfbIJc-aQAAEfyT](https://github.com/user-attachments/assets/54128aac-ca50-4bd0-9e25-c4cb7d0aacad)
 
 
 
