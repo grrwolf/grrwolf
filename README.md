@@ -13,8 +13,7 @@
 
 
 
-
-cred to artist:BJMAKI on x ![image](GfbIJc-aQAAEfyT) ![image](https://github.com/user-attachments/assets/54128aac-ca50-4bd0-9e25-c4cb7d0aacad)
+![image](https://github.com/user-attachments/assets/54128aac-ca50-4bd0-9e25-c4cb7d0aacad)
 
 
 
