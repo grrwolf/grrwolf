@@ -1,12 +1,16 @@
-![image](https://github.com/user-attachments/assets/fe4e6bd9-d5aa-4c49-9881-8700fc131f4c)
+  ![image](https://media3.giphy.com/media/v1.Y2lkPTc5MGI3NjExcTFwNWpqYXE5NTh6bXhoYmRtZ2ZreGI1YjFkaHl0MmQzb3ZwZ2czaCZlcD12MV9zdGlja2Vyc19zZWFyY2gmY3Q9cw/11DyOApDiYGEEjqDbz/giphy.webp)
 
 
 
-(https://grrwolf.straw.page) my interests ![image](https://supplies.ju.mp/assets/images/tiny1/222cdbb1_original.gif?v=1c1ba870)
 
-(https://kirikosbloom.straw.page) about me ![image](https://supplies.ju.mp/assets/images/tiny1/7405bc54_original.gif?v=1c1ba870)
 
-(https://ouihaw6969.straw.page) ouihaw appreciation ![image](https://supplies.ju.mp/assets/images/gallery05/8ceedc8d.gif?v=1c1ba870)
+
+
+  (https://grrwolf.straw.page) my interests ![image](https://supplies.ju.mp/assets/images/tiny1/222cdbb1_original.gif?v=1c1ba870)
+
+  (https://kirikosbloom.straw.page) about me ![image](https://supplies.ju.mp/assets/images/tiny1/7405bc54_original.gif?v=1c1ba870)
+
+  (https://ouihaw6969.straw.page) ouihaw appreciation ![image](https://supplies.ju.mp/assets/images/gallery05/8ceedc8d.gif?v=1c1ba870)
 
 
 
