@@ -11,7 +11,9 @@
 
 
 
-cred to artist:BJMAKI on x![image](https://pbs.twimg.com/media/GhU_RtVakAAzvxM?format=png&name=small)
+cred to artist:BJMAKI on x![image](https://preview.redd.it/hn7bbbc2jyt61.jpg?width=1080&crop=smart&auto=webp&s=bb6539991b23029a86a24d057c28489f2f745b5f)
+
+
 
 
 
