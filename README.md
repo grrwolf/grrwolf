@@ -1,9 +1,6 @@
-![GfbIJc-aQAAEfyT](https://github.com/user-attachments/assets/146a1a16-fe5e-45f6-b6c9-3d55994489da)  ![image](https://pixels.crd.co/assets/images/gallery21/94808142.gif?v=99d3974e) ｎｉｕ ![image](https://pixels.crd.co/assets/images/gallery21/94808142.gif?v=99d3974e)
-
-   mostly offtab so most likely wont see your messages so just whisper C+H welcomed!!![image](https://pixels.crd.co/assets/images/gallery16/c5de9d4e.gif?v=99d3974e)
-
-
-
+  ![image](https://pixels.crd.co/assets/images/gallery21/94808142.gif?v=99d3974e) ｎｉｕ ![image](https://pixels.crd.co/assets/images/gallery21/94808142.gif?v=99d3974e)
+  
+  mostly offtab so most likely wont see your messages so just whisper C+H welcomed!!![image](https://pixels.crd.co/assets/images/gallery16/c5de9d4e.gif?v=99d3974e)
 
 
 
