@@ -2,7 +2,9 @@
 
   
   
-   mostly offtab so most likely wont see your messages so just whisper C+H welcomed!!![image](https://pixels.crd.co/assets/images/gallery16/c5de9d4e.gif?v=99d3974e)
+ mostly offtab so most likely wont see your messages so just whisper C+H welcomed!!![image](https://pixels.crd.co/assets/images/gallery16/c5de9d4e.gif?v=99d3974e)
+
+
 
 
 
@@ -12,6 +14,8 @@
 
 
 cred to artist:BJMAKI on x![image](![GfbIJc-aQAAEfyT](https://github.com/user-attachments/assets/54128aac-ca50-4bd0-9e25-c4cb7d0aacad)
+
+
 
 
 
