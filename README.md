@@ -33,14 +33,6 @@ mostly offtab so i most likely wont see your messages so just whisper >.< C+H we
 
 
 
-  
-  
-  
-  (https://grrwolf.straw.page) my interests ![image](https://supplies.ju.mp/assets/images/tiny1/222cdbb1_original.gif?v=1c1ba870)
-
-  (https://kirikosbloom.straw.page) about me ![image](https://supplies.ju.mp/assets/images/tiny1/7405bc54_original.gif?v=1c1ba870)
-
-  (https://ouihaw6969.straw.page) ouihaw appreciation ![image](https://supplies.ju.mp/assets/images/gallery05/8ceedc8d.gif?v=1c1ba870)
 
 
 
@@ -71,12 +63,6 @@ mostly offtab so i most likely wont see your messages so just whisper >.< C+H we
 
 
 
-
-
-
-
-
-![image](https://media.tenor.com/qOQg-9-s1V4AAAAm/heart-nice.webp)![image](https://media.tenor.com/qOQg-9-s1V4AAAAm/heart-nice.webp)![image](https://media.tenor.com/qOQg-9-s1V4AAAAm/heart-nice.webp)
 
 
 
