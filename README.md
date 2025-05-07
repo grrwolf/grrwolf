@@ -18,8 +18,7 @@ mostly offtab so i most likely wont see your messages so just whisper >.< C+H we
 ![image](https://64.media.tumblr.com/8bd0291926b10acc3f25bbb50e65b7c9/a2291e39b1a69b97-5e/s250x400/c191eae982c4fded170277adc904d08d84f347a2.gifv)![image](https://64.media.tumblr.com/e65a9211d552deb8acc086345bb2c5e6/tumblr_ps0kz4S3201xlx2ufo1_250.gifv)![image](https://64.media.tumblr.com/98c217919143f70f0f41ad5dca9238f2/tumblr_ps0kz4S3201xlx2ufo2_250.gifv)![image](https://64.media.tumblr.com/a8978a1fb589ffb6600f735a89040b15/tumblr_ps0kz4S3201xlx2ufo3_250.gifv)![image](https://64.media.tumblr.com/8f40cb7257d0346e08463ac01bb6a29c/tumblr_ps0kz4S3201xlx2ufo4_250.gifv)![image](https://64.media.tumblr.com/87e818a1c574d7698565e377d1afa62d/tumblr_ps0kz4S3201xlx2ufo5_250.gifv)
 
 
-
-![image](https://github.com/user-attachments/assets/00604f23-4065-48e5-ba49-691f2f97db60)               
+             
  
 
 
