@@ -19,7 +19,8 @@ mostly offtab so i most likely wont see your messages so just whisper >.< C+H we
 
 
              
-![image](https://github.com/user-attachments/assets/c4013adf-d2e4-49ac-8860-6de67247e6ac)
+![image](https://github.com/user-attachments/assets/fd6c7671-33a4-493f-b873-202d2a1c1b11)
+
 
 
 
