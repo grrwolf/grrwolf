@@ -7,4 +7,4 @@
 
 ![](https://files.catbox.moe/xgc7of.png)
 
-STRAWPAGE ‎ ‎‎ ‎ ‎ ‎ ATABOOK ‎ ‎ ‎ ‎ ‎ ‎ ‎ RENTRY‎ ‎ ‎ ‎ ‎ ‎ ‎ 
+RENTRY‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ATABOOK ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ STRAWPAGE
