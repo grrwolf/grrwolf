@@ -19,7 +19,7 @@ mostly offtab so i most likely wont see your messages so just whisper >.< C+H we
 
 
              
- 
+![IMAGE](https://pbs.twimg.com/media/EMi1YCXXYAAXVeR?format=jpg&name=small) 
 
 
 
