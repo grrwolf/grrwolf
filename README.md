@@ -19,7 +19,9 @@ mostly offtab so i most likely wont see your messages so just whisper >.< C+H we
 
 
              
-![image](https://github.com/user-attachments/assets/fd6c7671-33a4-493f-b873-202d2a1c1b11)
+             
+![image](![1de7944f7a797829517e6a34c7f6f959-Picsart-BackgroundRemover](https://github.com/user-attachments/assets/db74b26e-fd69-4d13-a937-f71596755c6b)
+)
 
 
 
