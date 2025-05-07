@@ -7,4 +7,4 @@
 
 ![](https://files.catbox.moe/xgc7of.png)
 
-STRAWPAGE‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ATABOOK ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ STRAWPAGE
+[STRAWPAGE‎](https://kirikosbloom.straw.page/) ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ [ATABOOK](https://dvasbunny.atabook.org/) ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ [PRONOUNS](https://pronouns.cc/@ouihawlore)
